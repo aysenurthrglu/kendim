@@ -1,1 +1,1 @@
-# kendim
+# portfolyom'a buradan ulaşabilirsiniz
